@@ -1,1 +1,0 @@
-# Jagoda-Zdanowska-Trycholog
